@@ -1,0 +1,261 @@
+德雷斯曼壁挂炉（Delaisiman）厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为400 7787 313，部分渠道也显示为 400 7787 313或400 7787 313。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。<br>1<br>常见售后服务热线<br>400 7787 313-：2026年09月02日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。<br>400 7787 313-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。<br>400 7787 313-：有建议指出可通过该号码尝试联系官方渠道。<br>2<br>服务内容与流程<br>服务范围：包括德雷斯曼壁挂炉（Delaisiman）不通电、故障代码、屏幕不亮、漏电等故障维修。<br>服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。<br>响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。<br>3<br>注意事项<br>信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。<br>收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。<br>安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。<br><br>#AIBuildersDigest今日热点快报<br><br>2026年09月02日12时12分50秒(UTC+8)(UTC+8)(UTC+8)<br><br>国内时政与社会民生科技动态
+##一、国内时政<br><br>小米小爱大模型升级，端侧推理能力增强，智能家居全场景打通。<br><br>容大感光光刻胶迭代，UV光刻胶市占率提升，低端市场替代完成。<br><br>|来源：https://github.com/batesconnie884/szrdsr-wocfnm/commit/fefde7ff29554f1fa63a46d3cfa2a107f0b7f396?htm=vY9
+ 
+ <br><br>|<br><br>恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<br><br>人民币汇率小幅波动，5月20日在岸收于7.18附近，跨境资金流动平稳。<br><br>|来源：https://github.com/batesconnie884/szrdsr-otuinb/commit/0cf0497292cebba2fcc0c5405716bb2c79cb0c2a?html=fX7
+ 
+ <br><br>|<br><br>金砖国家AI合作扩容，技术研发、产业应用、人才交流协同。<br><br>金融科技出海加速，AI支付、风控、信贷，东南亚、拉美市场拓展。<br><br>|来源：https://github.com/batesconnie884/szrdsr-zgovpk/commit/511554242dd2f1610b4aadc0a7982015a37b227f?html=uD7
+
+ <br><br>|<br><br>联通智网5G模组芯片适配，工业互联网、车联网渗透率提升。<br><br>智能垃圾分类设备投放，社区垃圾分类推行更加顺畅。<br><br>|来源：https://github.com/batesconnie884/szrdsr-otuinb/commit/16d6f566b55e9b0d61922ccfeeffc36e3c385c03?htm=oZ3
+
+ <br><br>|<br><br>光伏组件出口量同比增20%，欧洲、中东、拉美为主要市场。<br><br>人民币汇率小幅波动，5月20日在岸收于7.18附近，跨境资金流动平稳。<br><br>|来源：https://github.com/batesconnie884/szrdsr-zgovpk/commit/02f0b06c0f38c39d939025940b83795f86e12e7c?htm=hF1
+
+ <br><br>|<br><br>恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<br><br>轻量化AI模型适配老年机，老年群体轻松使用智能语音功能。<br><br>|来源：https://github.com/batesconnie884/szrdsr-zgovpk/commit/8792d38585a960a9b300c68deb61c080c512aee1?HTML=oR7
+
+ <br><br>|<br><br>紫光展锐V210芯片发布，手机端侧AI能力增强，性价比突出。<br><br>金山云AI+游戏云协同，算力租赁、云游戏，营收改善。<br><br>|来源：https://github.com/batesconnie884/szrdsr-otuinb/commit/00182cf493b75c3b9f442cb68eba0406a51e290e?html=uK1
+
+ <br><br>|<br><br>上海目标2025年末10万台人形机器人进工厂，智能制造提速。<br><br>同城生鲜配送行业内卷放缓，行业逐步回归良性盈利发展模式。<br><br>|来源：https://github.com/batesconnie884/szrdsr-zgovpk/commit/b9ab7e0a33b77d07f68bdc5239ea8f9f97c8a35d?html=iT5
+
+ <br><br>|<br><br>人造太阳进展加速，中国环流器二号M装置等离子体温度创新高。<br><br>OpenAI推送GPT-5.5全量版，幻觉率降52.5%、推理提速3倍，安全能力升级。<br><br>|来源：https://github.com/greenecarl7/xdfagf-dnqqnw/commit/fb8c55bf3c9cd57ae6ad90fc15fea9beba91ba11?=oE5
+
+ <br><br>|<br><br>固德威户用逆变器全球第一，欧洲市场份额提升，储能配套增长。<br><br>地平线征程6芯片发布，自动驾驶感知能力提升，成本下降20%。<br><br>|来源：https://github.com/greenecarl7/xdfagf-yrbipx/commit/655e2a342eb314940fe847dbd8c8bef7fc151ef5?=iS7
+
+ <br><br>|<br><br>基金持仓AI分析，重仓股、行业配置、风格漂移，透明度提升。<br><br>航运运价指数企稳回升，外贸海运订单环比持续增加。<br><br>|来源：https://github.com/greenecarl7/xdfagf-dnqqnw/commit/e770ac7097f5482c2cc2e581f98e4b787b021fb6?=pE0
+
+ <br><br>|<br><br>浪潮云政企市场发力，AI服务器+云计算，信创领域订单增长。<br><br>智能传感技术迭代，AI+传感器，工业、汽车、医疗、家居感知升级。<br><br>|来源：https://github.com/greenecarl7/xdfagf-yrbipx/commit/60292d83a1165ab5e32a22465f09d60dbad3e316?htm=tQ0
+
+ <br><br>|<br><br>预制食材配送体系完善，连锁餐饮降本增效效果显著。<br><br>功率半导体迎来高景气，新能源汽车、光伏、风电驱动，IGBT/MOSFET放量。<br><br>|来源：https://github.com/greenecarl7/xdfagf-bcxtcd/commit/fe9f737f90cedfe41699418ffab60b001f10e9c1?HTML=tV6
+
+ <br><br>|<br><br>氢能储运技术突破，液氢运输成本下降，商业化应用临近。<br><br>MetaQuest3热销，AI内容生成、性价比高，消费级VR份额第一。<br><br>|来源：https://github.com/greenecarl7/xdfagf-yrbipx/commit/68de9577fd0724b85fb8a9b6a7a4142902e64fa0?HTML=zM6
+
+ <br><br>|<br><br>上海目标2025年末10万台人形机器人进工厂，智能制造提速。<br><br>北方华创沉积设备迭代，国产替代加速，先进制程设备放量。<br><br>|来源：https://github.com/greenecarl7/xdfagf-yrbipx/commit/70e8ee95dfb61d80a72e2927696b84940feca6de?=wK1
+
+ <br><br>|<br><br>日本恩格尔系数创新高，物价上涨挤压居民消费空间。<br><br>vivoXFold3迭代，大屏折叠、AI办公，商务用户渗透率提升。<br><br>|来源：https://github.com/greenecarl7/xdfagf-yrbipx/commit/2a4e8b983e4972f7e8fd5f7b08c13d3d7501bed6?HTML=dM2
+
+ <br><br>|<br><br>外汇市场AI交易，汇率预测、套利策略、风险对冲，机构应用增加。<br><br>中材科技风电叶片市占率全球第一，大型化、轻量化，适配16MW机组。<br><br>|来源：https://github.com/smithlinda177/fcdxdf-enfpny/commit/f628ffb436becec6016f0b99df2548fc73b254b6?html=jP7
+
+ <br><br>|<br><br>AI降噪技术普及，耳机家电等产品静音效果全面优化。<br><br>保险车险费率优化，私家车投保成本出现小幅下调。<br><br>|来源：https://github.com/smithlinda177/fcdxdf-ncnsaa/commit/6b3407f9945478b00d1ea6c445c225afd2e4eee2?html=jN7
+
+ <br><br>|<br><br>九章四号光量子计算原型机问世，千量子输入，算力创纪录。<br><br>量子精密测量落地，地质勘探、资源探测、环境监测应用。<br><br>|来源：https://github.com/smithlinda177/fcdxdf-bzyqzi/commit/09b51116a22a88804485c19af6fb1b9421c75621?HTML=vC3
+
+ <br><br>|<br><br>矩阵超智发布MATRIX-3人形机器人，170cm身高、灵巧手，标准版58万元。<br><br>纳斯达克中国金龙指数小幅收涨，万物新生涨超11%，中概股分化明显。<br><br>|来源：https://github.com/smithlinda177/fcdxdf-bzyqzi/commit/3a3d528369b86654733bb3e5b287900fef43ffd3?html=aG6
+
+ <br><br>|<br><br>超级高铁概念验证，真空管道+磁悬浮，未来交通新形态探索。<br><br>同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<br><br>|来源：https://github.com/smithlinda177/fcdxdf-bzyqzi/commit/94abca59cb220a9b9d3c4a480ca7cecedd25c16d?HTML=fB4
+
+ <br><br>|<br><br>米哈游AI游戏引擎升级，画质提升、开发降本，新作预期高。<br><br>数字人民币试点扩大，线上线下场景融合，支付便捷性提升。<br><br>|来源：https://github.com/smithlinda177/fcdxdf-ncnsaa/commit/315fd8bc5c8b6fe5e8ddb55b90f2b2a14439e831?htm=uX5
+
+
+ <br><br>|<br><br>央行、财政部等扩围技改贷款，AI设备、软件服务纳入支持范围。<br><br>锦浪科技储能逆变器迭代，效率提升、成本下降，海外放量。<br><br>|来源：https://github.com/smithlinda177/fcdxdf-bzyqzi/commit/73b9fb3ea0dafef129eae64608bee937b0a8b2fd?html=rN9
+
+
+ <br><br>|<br><br>工程机械销量回暖，基建开工带动设备采购需求回升。<br><br>银企对接活动密集开展，解决中小企业融资难题。<br><br>|来源：https://github.com/smithlinda177/fcdxdf-ncnsaa/commit/0e87ef972792558cf933d08f11ccd20e343976ce?=oY8
+
+
+ <br><br>|<br><br>新一代无线充电技术落地，远距离隔空充电正式走入民用。<br><br>同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<br><br>|来源：https://github.com/smithlinda177/fcdxdf-ncnsaa/commit/f7fdbe7438b451977b70499eea766c6eda72f4ec?=uW9
+
+
+ <br><br>|<br><br>期货市场农产品合约活跃，气候因素影响粮油价格走势。<br><br>创投母基金加大出资力度，赋能中小科创企业成长发展。<br><br>|来源：https://github.com/contrerasjake7319/trnfvn-ubvdqu/commit/c7bed59479725a78b57afb195454f1d041e59492?htm=sE4
+
+
+ <br><br>|<br><br>运达股份陆上风电整机性价比优势突出，三北地区装机放量。<br><br>浪潮AI服务器市占率提升，国内第一，海外市场拓展加速。<br><br>|来源：https://github.com/contrerasjake7319/trnfvn-gjkikh/commit/e489d98e1116eb5a7b46f4a4fa1144a5230eb82d?htm=qP8
+
+
+ <br><br>|<br><br>县域消费市场发力，家电下乡政策拉动下沉市场消费增长。<br><br>保险车险费率优化，私家车投保成本出现小幅下调。<br><br>|来源：https://github.com/contrerasjake7319/trnfvn-tncfhf/commit/1c0aca32480bc0c4d17d8e427de091a3f8800bf3?=xD3
+
+
+ <br><br>|<br><br>纳斯达克中国金龙指数小幅收涨，万物新生涨超11%，中概股分化明显。<br><br>Gemini月活用户达9亿，日请求量同比增7倍，搜索全量接入AI大模型。<br><br>|来源：https://github.com/contrerasjake7319/trnfvn-ubvdqu/commit/83f231bd6a4161c20d16ec4dcc428eee8e7aedf7?HTML=lQ2
+
+
+ <br><br>|<br><br>银联国际AI跨境支付平台升级，覆盖全球170+国家，交易效率提升。<br><br>长江存储启动A股上市辅导，存储行业缺货预计延续至2027年。<br><br>|来源：https://github.com/contrerasjake7319/trnfvn-ubvdqu/commit/0410737a54d84f26b89c908deddcfc332c238466?html=rE4
+
+
+ <br><br>|<br><br>量子精密测量落地，地质勘探、资源探测、环境监测应用。<br><br>中国人寿AI风控升级，欺诈识别能力增强，赔付率优化。<br><br>|来源：https://github.com/contrerasjake7319/trnfvn-ubvdqu/commit/4c91747d7743e38b6ce7446eab8b94a35ed48fb7?htm=pT6
+
+
+ <br><br>|<br><br>拼多多AI农产品推荐、直播带货，助农增收，订单增长。<br><br>华润微功率半导体产能扩张，IGBT/MOSFET放量，新能源汽车拉动需求。<br><br>|来源：https://github.com/contrerasjake7319/trnfvn-gjkikh/commit/8249f5199f85f8230f7ccb4ec11cce8ffc5741a9?html=yT4
+
+
+ <br><br>|<br><br>华泰证券AI风控系统商用，风险识别准确率提升，合规成本下降。<br><br>元宇宙热度回升，AI+VR/AR融合，虚拟社交、办公、娱乐落地。<br><br>|来源：https://github.com/contrerasjake7319/trnfvn-gjkikh/commit/af53dbc0acfba0ece30fdb952b0d31767e18d74a?htm=lC4
+
+
+ <br><br>|<br><br>###六、金融/支付/理财（341–400）<br><br>量子传感技术突破，量子雷达、量子导航、量子成像精度提升。<br><br>|来源：https://github.com/contrerasjake7319/trnfvn-ubvdqu/commit/38e66ce915037b3e1b26f8aec017da09a4dbb6f5?htm=mS9
+
+
+ <br><br>|<br><br>日本恩格尔系数创新高，物价上涨挤压居民消费空间。<br><br>二氧化碳捕集利用技术成熟，AI优化，碳中和目标推进。<br><br>|来源：https://github.com/contrerasjake7319/trnfvn-tugjas/commit/c60a6bcd3ddd129d098dfe9c05174d73ca55186c?HTML=hB8
+
+
+ <br><br>|<br><br>极地科考AI赋能，智能设备、无人船、无人机，数据采集效率提升。<br><br>工信部深化AI+制造专项，支持智能网联汽车、人形机器人等领域。<br><br>|来源：https://github.com/contrerasjake7319/trnfvn-ubvdqu/commit/0312a7b79cdc2595977177dd10c2108756b92951?=kQ7
+
+
+ <br><br>|<br><br>纳斯达克中国金龙指数小幅收涨，万物新生涨超11%，中概股分化明显。<br><br>虚拟直播间搭建门槛降低，实体商家轻松开启线上直播带货。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-rmfcgp/commit/3e2385b9f15ce432d1bfb890aff047d719c43b39?HTML=eP6
+
+
+ <br><br>|<br><br>商业航天企业密集融资，卫星互联网、火箭发射、太空旅游加速。<br><br>网络云游戏体验升级，低配设备流畅运行大型端游大作。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-rmfcgp/commit/a1741d16a5dd4a5d6bcbb3d0549602a3939f3d49?HTML=aA3
+
+
+ <br><br>|<br><br>户用储能海外高景气，欧洲能源危机后渗透率提升，出口增长。<br><br>城市智慧停车系统联网，全城空余车位一键快速查找。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-tqsple/commit/31be3e8020d4295f68239de04f81676edc27bd1a?html=vF3
+
+
+ <br><br>|<br><br>苹果A18Pro芯片发布，3nm工艺、算力提升，iPhone17系列搭载。<br><br>少儿智能早教机器人更新，趣味互动助力孩童启蒙学习。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-rmfcgp/commit/81789a1a96dc1fe61f7dc5486bbdcd28f6cae6e9?html=jH1
+
+
+ <br><br>|<br><br>##二、民生社会<br><br>北京君正存储芯片+CPU协同，工业控制、车载场景渗透率提升。<br><br>家用智能扫地机器人升级，全屋自动清扫避障能力更强。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-rmfcgp/commit/704dda519944b0cfde6087f2f3da5e2f1817f56a?=aB2
+
+
+ <br><br>|<br><br>湖南广电AI主播上岗，人机协同播报，效率提升、成本下降。<br><br>国盾量子量子加密芯片量产，金融、政务、通信安全防护强化。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-tqsple/commit/874c404dd2ed76ffe4953a4d3f8008c76cb35665?htm=wI6
+
+
+ <br><br>|<br><br>国家发改委印发法治护航民营经济行动方案，优化民企发展环境。<br><br>无人机技术升级，AI+避障+长续航，物流、农业、测绘、巡检普及。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-tqsple/commit/b51c5fc3778c0c173f7604be574137480269d8ea?=kP3
+
+
+ <br><br>|<br><br>云端算力共享平台上线，中小企业低成本租用高端算力。<br><br>氢能储运技术突破，液氢运输成本下降，商业化应用临近。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-tqsple/commit/82d06296445bead33e40e2eceae4995522e70a6e?HTML=nZ7
+
+
+ <br><br>|<br><br>蔚来换电站数量超2000座，全球最大换电网络，用户体验优化。<br><br>户外露营装备销量持续走高，户外休闲消费市场持续升温。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-tjdraa/commit/ff632add8bc406d38d3289d386836b50ea21b1e9?htm=tL7
+
+ <br><br>|<br><br>中美AI官方对话启动，管控风险、避免冲突、务实合作。<br><br>黄金ETF持仓持续增加，全球央行购金热情不减。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-rmfcgp/commit/1c24d0336ec5f1d21db66dd12cf2d083df6f960f?=eW7
+
+ <br><br>|<br><br>县域文旅小镇持续引流，带动周边乡村经济协同发展。<br><br>超材料应用拓展，隐身、通信、能源、医疗，颠覆性技术落地。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-tqsple/commit/dd7fb8e5672876d7a035e5adea6ac3f10280f832?=zS5
+
+ <br><br>|<br><br>互联网企业ESG表现提升，绿色算力、低碳运营、社会责任强化。<br><br>全球海上风电装机量同比增30%，中国沿海省份密集开工。<br><br>|来源：https://github.com/valenciaterri474/ugfsaw-tjdraa/commit/8b0a83a2b01343d12eb462c7112067b427fe7c81?=hV2
+
+ <br><br>|<br><br>开源大模型社区活跃，国产模型开源数量同比增200%。<br><br>同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<br><br>|来源：https://github.com/johnsonsteven33/ugfsaw-ukakww/commit/0cf3a1a6f264ba9d8a0f572b920909623cef3dea?htm=zG7
+
+ <br><br>|<br><br>中创新航圆柱电池量产，适配新能源汽车、储能，订单增长。<br><br>新加坡加码AI布局，英伟达将落地本地研发中心，亚太第二处。<br><br>|来源：https://github.com/johnsonsteven33/ugfsaw-ukakww/commit/5d8a676078658f6bdef63a53b7896aa0bb8e39e8?htm=tZ6
+
+ <br><br>|<br><br>百度智能云文心一言赋能，政企AI解决方案，订单增长。<br><br>氢能储运技术突破，液氢运输成本下降，商业化应用临近。<br><br>|来源：https://github.com/johnsonsteven33/ugfsaw-ukakww/commit/2b72917acd217575c797798488649dd1a0aea520?htm=rN7
+
+ <br><br>|<br><br>天合光能210mm组件量产，大尺寸、高功率，地面电站适配。<br><br>人民币汇率小幅波动，5月20日在岸收于7.18附近，跨境资金流动平稳。<br><br>|来源：https://github.com/johnsonsteven33/ugfsaw-olxqgb/commit/a993710126e823d93da658b597ff35b1e33fea4d?=wD0
+
+ <br><br>|<br><br>移动端AI修图算法优化，手机修图媲美专业电脑效果。<br><br>京东科技AI供应链金融，中小微企业融资便捷，坏账率下降。<br><br>|来源：https://github.com/johnsonsteven33/ugfsaw-olxqgb/commit/f56fa6c4d1dbadbcad5fa0c2eea5f282fc64a8d7?HTML=jN4
+
+ <br><br>|<br><br>台积电3nmAI芯片量产，良率提升、成本下降，头部客户订单饱满。<br><br>城市智能灭蚊系统布局，公共场所智能消杀蚊虫优化环境。<br><br>|来源：https://github.com/johnsonsteven33/ugfsaw-olxqgb/commit/5774034e5558a991c09458256609441300c47257?HTML=zZ7
+
+ <br><br>|<br><br>银河航天低轨宽带卫星量产，互联网覆盖偏远地区，成本下降。<br><br>户外用品销量大涨，露营徒步相关消费市场持续火爆。<br><br>|来源：https://github.com/johnsonsteven33/ugfsaw-rogrda/commit/2202ffc7ce37fea53075dc458cd27bea64eef78b?HTML=rW9
+
+ <br><br>|<br><br>北京中关村AI产业集群，大模型、芯片、算力、应用全链条完善。<br><br>星河动力谷神星一号火箭批量发射，小型卫星入轨，性价比高。<br><br>|来源：https://github.com/johnsonsteven33/ugfsaw-ukakww/commit/b2d26cd778adc47869f4ad1fe53145138bfd586a?html=bD5
+
+ <br><br>|<br><br>养老金融产品上新，适配中老年群体理财需求增多。<br><br>开源生态繁荣，AI大模型、工具链开源，开发者协作创新加速。<br><br>|来源：https://github.com/johnsonsteven33/ugfsaw-xpzgta/commit/e3b5dbdcf74ce15d92f4b45e756efff7ea763404?HTML=cY5
+
+ <br><br>|<br><br>水利工程集中开工，水利建设产业链上下游同步受益。<br><br>亿纬锂能大圆柱电池商用，4680规格，特斯拉、宝马订单落地。<br><br>|来源：https://github.com/johnsonsteven33/ugfsaw-rogrda/commit/3e425151430c7a610a0fcc58f2bbdd1c47ba7ba7?HTML=dG2
+
+ <br><br>|<br><br>安恒信息AI数据安全平台发布，敏感数据识别、脱敏效率提升。<br><br>景嘉微JM9系列显卡量产，国产GPU替代，信创、军工场景放量。<br><br>|来源：https://github.com/johnsonsteven33/ugfsaw-rogrda/commit/ab85b80355c6686b80084bfa6d18b4718637cee2?html=zI0
+
+ <br><br>|<br><br>算力租赁价格下行，AI企业按需付费，算力成本显著降低。<br><br>阿里云发布真武M890芯片，对标英伟达H100，AI训练性能提升40%。<br><br>|来源：https://github.com/mejialisa14/fcgfsa-fsjmsm/commit/2cff2287e8a522c04efe007d769192ba22b4585e?html=kL5
+
+ <br><br>|<br><br>国产大模型加速落地金融、政务，私有化部署市场份额提升。<br><br>商汤日日新大模型升级，自动驾驶、智慧城市场景商业化加速。<br><br>|来源：https://github.com/mejialisa14/fcgfsa-taksks/commit/caf16f832ad470430ec3a96337862eea0e16e084?=pS0
+
+ <br><br>|<br><br>船载智能导航升级，远洋航行智能避险功能更加完善。<br><br>碳交易市场交易活跃，企业节能减排交易需求上涨。<br><br>|来源：https://github.com/mejialisa14/fcgfsa-taksks/commit/d92ae823c040ce9a543ad6633ecc14262d8c717f?htm=rC4
+
+ <br><br>|<br><br>韩国拟设公民红利，资金来源为AI产业超额利润，回馈国民。<br><br>企业员工薪资小幅上调，服务业与制造业用工薪酬同步上涨。<br><br>|来源：https://github.com/mejialisa14/fcgfsa-fsjmsm/commit/98661bf977ddbfcd61e2340c6a82fb6fe3eec3f8?HTML=rY9
+
+ <br><br>|<br><br>特种机器人应用拓展，消防、安防、勘探、救灾，危险场景替代人力。<br><br>新能源技术多元突破，氢能、核能、地热能、潮汐能，能源结构优化。<br><br>|来源：https://github.com/mejialisa14/fcgfsa-gwajhz/commit/cb146bc283ff0a12432e874d5787f2e242a2990b?htm=rY5
+
+ <br><br>|<br><br>特锐德充电桩运营量国内第一，充电量增长，储能+充电协同。<br><br>三星劳资谈判破裂，或全球减产DRAM/NAND，存储价格恐再涨。<br><br>|来源：https://github.com/mejialisa14/fcgfsa-gyuegg/commit/da1c443b08f132c07b6870d26297816cf869b30a?=oK5
+
+ <br><br>|<br><br>智能汽车域控制器量产，中央计算+区域控制，电子架构升级。<br><br>英伟达H200芯片量产，显存翻倍、算力提升，大模型训练成本下降。<br><br>|来源：https://github.com/mejialisa14/fcgfsa-gwajhz/commit/f57501652e69b541f1ce3f7f010982f274515a11?html=lX6
+
+ <br><br>|<br><br>精品民宿连锁化布局提速，标准化运营提升行业整体收益。<br><br>明阳智能海上风电整机市占率国内第一，海外市场拓展加速。<br><br>|来源：https://github.com/mejialisa14/fcgfsa-gyuegg/commit/0aebe8bf9e89dc46923ac054e595cb0f8a432fa3?html=pV5
+
+ <br><br>|<br><br>新型电力系统建设提速，特高压、储能、虚拟电厂协同发展。<br><br>飞腾AI服务器量产，国产芯片+大模型适配，信创领域批量部署。<br><br>|来源：https://github.com/mejialisa14/fcgfsa-fsjmsm/commit/cfa95ec83371328326d6f46d4d3729815392405b?=mU0
+
+ <br><br>|<br><br>国企混改引入AI战略投资者，数字化转型、技术升级、效率提升。<br><br>中欧联合微笑卫星发射升空，首次实现地球磁层全景成像。<br><br>|来源：https://github.com/mejialisa14/fcgfsa-fsjmsm/commit/bf21811f47b7b9b774c68f24169e6bff6de73b49?html=tZ5
+
+ <br><br>|<br><br>手持智能测温仪优化，多场景快速测温精准度再提升。<br><br>产业园招商力度加大，工业厂房租赁市场需求回暖。<br><br>|来源：https://github.com/mejialisa14/fcgfsa-fsjmsm/commit/f9e5527f5161de09f6220dc0d455e380e263cc94?HTML=uU7
+
+ <br><br>|<br><br>建筑智能放样设备普及，工地施工精准度大幅提升。<br><br>东方国信中标中国电信Token工厂15%份额，华胜天成中标18%。<br><br>|来源：https://github.com/gonzalezkaren0/fxdgds-qnrkqa/commit/9bc19a27225a048ebcfa12235e5861b9b07821d7?htm=wH4
+
+ <br><br>|<br><br>网易云音乐AI推荐、歌单生成、翻唱，用户活跃度提升。<br><br>智能手表/手环出货量增长，健康监测、AI辅助，渗透率提升。<br><br>|来源：https://github.com/gonzalezkaren0/fxdgds-qnrkqa/commit/92d3b0dd47fd464f7f176e3d60ad9d348474b2ce?HTML=lM6
+
+ <br><br>|<br><br>南大光电高端光刻胶突破，ArF光刻胶通过验证，进入头部供应链。<br><br>开源生态繁荣，AI大模型、工具链开源，开发者协作创新加速。<br><br>|来源：https://github.com/gonzalezkaren0/fxdgds-qnrkqa/commit/bd33f828d3271a67a09144cc49e253dd10d8c0c4?=fT4
+
+ <br><br>|<br><br>盈方微处理器芯片复产，工业控制、物联网场景重启，扭亏为盈。<br><br>国电南瑞充电桩控制系统商用，智能调度、安全防护强化。<br><br>|来源：https://github.com/gonzalezkaren0/fxdgds-ddrmgx/commit/dfe5c935ba7d6127fc5164279255beb62102ceaf?HTML=wJ7
+
+ <br><br>|<br><br>国际铁矿石价格回落，钢铁企业生产成本压力有所缓解。<br><br>恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<br><br>|来源：https://github.com/gonzalezkaren0/fxdgds-qnrkqa/commit/2021ebdebd631daf24fa819672e4e0974bb7bb55?html=wU3
+
+ <br><br>|<br><br>美联储加息预期升温，10年期美债收益率升至4.677%，创1年半新高。<br><br>特种机器人应用拓展，消防、安防、勘探、救灾，危险场景替代人力。<br><br>|来源：https://github.com/gonzalezkaren0/fxdgds-qnrkqa/commit/c35069c177b7c37fba5e30dae6d854d78754527d?=jC0
+
+ <br><br>|<br><br>绿电交易规模扩大，新能源发电溢价提升，企业采购意愿增强。<br><br>本源量子悟源二号量子计算机升级，算力提升、错误率下降。<br><br>|来源：https://github.com/mcneiljackson7/fxdgds-wwramo/commit/7c3a0802d298f4bff43c9c266446d577bb46290e?=hR3
+
+ <br><br>|<br><br>国内区域AI产业集群形成，长三角、珠三角、京津冀、成渝领跑。<br><br>共享智能充电宝升级，快充大功率输出适配各类数码设备。<br><br>|来源：https://github.com/mcneiljackson7/fxdgds-zzstul/commit/6c5c7000a4117c7bed3d6d84d9f6a326330dd7b4?HTML=rS0
+
+ <br><br>|<br><br>生态环境部强化AI环保监测，空气质量、水质、污染源智能监控。<br><br>###六、金融/支付/理财（341–400）<br><br>|来源：https://github.com/mcneiljackson7/fxdgds-wwramo/commit/7f5d7c0ec85c17746fd61b0701b07b97c6fcb1ea?html=lX9
+
+ <br><br>|<br><br>汽修智能检测仪器普及，快速排查车辆故障精准定位问题。<br><br>长鑫科技5月27日上会，一季度净利润大增1688%，国产存储加速上市。<br><br>|来源：https://github.com/mcneiljackson7/fxdgds-zzstul/commit/e65eb5d6396fdbc9a6a7771c1c617849cd2230c9?html=kM7
+
+ <br><br>|<br><br>##三、科技产业<br><br>企业员工薪资小幅上调，服务业与制造业用工薪酬同步上涨。<br><br>同城即时配送规模暴涨，本地生活服务行业快速发展。<br><br>|来源：https://github.com/mcneiljackson7/fxdgds-zzstul/commit/98f964f9853adc56c7a3ff6018f08c9e3857c31a?HTML=cD7
+
+ <br><br>|<br><br>美联储加息预期升温，10年期美债收益率升至4.677%，创1年半新高。<br><br>旷视天元大模型迭代，机器人视觉识别精度达99.9%，工业落地提速。<br><br>|来源：https://github.com/mcneiljackson7/fxdgds-zzstul/commit/f1a34c39a52d0cbc21aa33f5388b412e622937e3?=sN5
+
+ <br><br>|<br><br>融资租赁行业聚焦实体，助力中小企业购置生产设备。<br><br>华峰测控模拟测试设备市占率提升，国内第一，海外市场拓展。<br><br>|来源：https://github.com/mcneiljackson7/fxdgds-wwramo/commit/9dda583383f59c4b2bcc505035d704f6060efe0e?html=mM5
+
+ <br><br>|<br><br>纳米防水技术广泛应用，数码电子产品防水性能全面提升。<br><br>云端算力共享平台上线，中小企业低成本租用高端算力。<br><br>|来源：https://github.com/mcneiljackson7/fxdgds-fvdjsn/commit/704ce6472385f2c9f4124d00d3bab66d1d760a91?=aX4
+
+ <br><br>|<br><br>物联网芯片出货量激增，NB-IoT、Cat.1渗透率提升，智慧城市拉动。<br><br>三星GalaxyZFold6迭代，轻薄化、AI优化，全球折叠市场主导。<br><br>|来源：https://github.com/griffinjoseph42/rsgsae-ucmdas/commit/8be6279acfc22b7af8cc19d429ed1de154c3185d?html=mD5
+
+ <br><br>|<br><br>信用卡消费场景扩容，日常小额消费刷卡频次上涨。<br><br>国家发改委印发法治护航民营经济行动方案，优化民企发展环境。<br><br>|来源：https://github.com/griffinjoseph42/rsgsae-lcxtte/commit/3aece645ecc444c969e2f079114617bb30e2c4b7?HTML=mQ8
+
+ <br><br>|<br><br>鲲鹏昇腾开发者大会5月22日北京举办，国产算力生态加速落地。<br><br>长鑫科技5月27日上会，一季度净利润大增1688%，国产存储加速上市。<br><br>|来源：https://github.com/griffinjoseph42/rsgsae-lcxtte/commit/0caa351f1b7990fae1df1a804ccd24910a086b3a?=uU1
+
+ <br><br>|<br><br>阿里云发布真武M890芯片，对标英伟达H100，AI训练性能提升40%。<br><br>三星劳资谈判破裂，或全球减产DRAM/NAND，存储价格恐再涨。<br><br>|来源：https://github.com/griffinjoseph42/rsgsae-ucmdas/commit/5378f4a3da35ea56b3053ab79a5031e92569126e?htm=oO4
+
+ <br><br>|<br><br>华为云ModelArts升级，AI开发全流程自动化，训练周期缩短50%。<br><br>数字人民币跨境试点启动，中俄、中阿贸易结算，国际化推进。<br><br>|来源：https://github.com/griffinjoseph42/rsgsae-ucmdas/commit/3b20a91b6eb476219cceb5054b5fdbddddc4efea?html=jW3
+
+ <br><br>|<br><br>大厂高薪抢AI人才，算法工程师、大模型训练师薪资翻倍。<br><br>恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<br><br>|来源：https://github.com/griffinjoseph42/rsgsae-hzvgmt/commit/2ee953fe7cfcd95b4dca7d515b2ba18d2d4d4c41?htm=zN3
+
+ <br><br>|<br><br>瑞萨电子车载MCU迭代，高可靠、高安全，汽车电子核心。<br><br>德业股份逆变器+电池协同，户用光伏+储能一体化解决方案热销。<br><br>|来源：https://github.com/griffinjoseph42/rsgsae-hzvgmt/commit/35d07f97e67d70b10f162f25b9fcec0fa1297dd1?html=tE8
+
+ <br><br>|<br><br>智能垃圾分类设备投放，社区垃圾分类推行更加顺畅。<br><br>vivoXFold3迭代，大屏折叠、AI办公，商务用户渗透率提升。<br><br>|来源：https://github.com/griffinjoseph42/rsgsae-hzvgmt/commit/9a2788ebd2c4f8665a40a4a21a5865d89ece222f?=fJ6
+
+ <br><br>|<br><br>工业润滑油需求回暖，制造业复工复产拉动耗材消费。<br><br>AR/VR设备出货量回升，消费级产品价格下探，内容生态完善。<br><br>|来源：https://github.com/griffinjoseph42/rsgsae-hzvgmt/commit/1eeb16b184b57f8fd55231908794778abeb93ffb?html=yG4
+
+ <br><br>|<br><br>生猪价格小幅回升，养殖企业亏损收窄，养殖端补栏意愿增强。<br><br>存款利率微调下调，居民储蓄意愿小幅减弱流向消费端。<br><br>|来源：https://github.com/wardedward3/szrdsr-qatsip/commit/507ac252447413215ad37ce6b9a0b3631c08f1bf?HTML=pA6
+
+ <br><br>|<br><br>北京中关村AI产业集群，大模型、芯片、算力、应用全链条完善。<br><br>推想医疗AI辅助手术系统获批，精准导航、风险预警能力显著提升。<br><br>|来源：https://github.com/wardedward3/szrdsr-tomgah/commit/1fcb4160af566144e990da94d33a477ea5b07b17?html=zW1
+
+ <br><br>|<br><br>启明星辰AI态势感知系统落地，全网威胁可视化，应急响应提速。<br><br>电池片、组件价格回升，N型组件溢价明显，厂商毛利率修复。<br><br>|来源：https://github.com/wardedward3/szrdsr-qatsip/commit/6b72b99664c95ed4e18ee303114cd04b834762e2?html=xP5
+
+ <br><br>|<br><br>腾讯混元企业版发布，私有化部署、数据安全可控，金融、政务落地。<br><br>南开大学团队攻克钙钛矿电池瓶颈，稳态效率首破27%。<br><br>|来源：https://github.com/wardedward3/szrdsr-qatsip/commit/56a6b8f2ca53bc767e47982a9e3e427f905e669f?htm=tK8
+
+ <br><br>|<br><br>券商AI转型加速，智能投顾、行情分析、风控系统，服务效率提升。<br><br>三星ExynosAI芯片升级，手机端侧大模型适配，功耗优化。<br><br>|来源：https://github.com/wardedward3/szrdsr-tomgah/commit/7c0ff2970a1b3cba3b7ff8c57a01493e4f03c096?html=iY1
+
+ <br><br>|<br><br>AI降噪技术普及，耳机家电等产品静音效果全面优化。<br><br>麒麟软件适配主流大模型，国产操作系统+AI生态闭环形成。<br><br>|来源：https://github.com/wardedward3/szrdsr-qatsip/commit/630ee286bb5ef10800c699faf7540061190ca60e?HTML=mB5
+
+ <br><br>|<br><br>星河动力谷神星一号火箭批量发射，小型卫星入轨，性价比高。<br><br>推想医疗AI辅助手术系统获批，精准导航、风险预警能力显著提升。<br><br>|来源：https://github.com/wardedward3/szrdsr-asbfbu/commit/2510ce30fceff177691dbbc5f065bd9006ee1706?=tX6
+
+ <br><br>|<br><br>跨境物流专线加密，外贸货物出海运输时效大幅提升。<br><br>国内成品油价格小幅调整，出行及物流行业成本迎来小幅变动。<br><br>|来源：https://github.com/wardedward3/szrdsr-qatsip/commit/6e32013de365f9e6ec78acb4979fe717769ef77e?=tQ3
+
+ <br><br>|<br><br>国际白银价格走强，突破79美元/盎司，工业与避险需求共振。<br><br>鼎龙科技CMP抛光垫量产，适配先进制程，打破海外垄断。<br><br>|来源：https://github.com/wardedward3/szrdsr-asbfbu/commit/1ef9605a60a5d3637383ca4cf289414925fa4626?html=hL0
+
+ <br><br>|<br><br>全球云计算市场回暖，AI驱动，亚马逊AWS、微软Azure、阿里云领跑。<br><br>国内开源平台活跃，GitHub、Gitee国产替代，自主可控生态构建。<br><br>|来源：https://github.com/johnsontiffany9016/rsgsae-jnwllh/commit/71a8598cf73c3bd0864a1a9a5c35c68baaf90109?HTML=mV3
+
+ <br><br>|<br><br>复旦微FPGA芯片量产，军工、信创领域批量采购，自主可控强化。<br><br>券商财富管理转型提速，基金代销规模同比增12%。<br><br>|来源：https://github.com/johnsontiffany9016/rsgsae-jnwllh/commit/1733e818f592d10b27c928241ffc9859e932d0c5?=dX1
+
+ <br><br>|<br><br>智慧公交系统全面落地，实时调度大幅缩减候车时长。<br><br>全球海上风电装机量同比增30%，中国沿海省份密集开工。<br><br>|来源：https://github.com/johnsontiffany9016/rsgsae-jnwllh/commit/80ca1f37d57f9ed542e7eff1e16597a7d75ce111?html=eU4
+
+ <br><br>|<br><br>英特尔Gaudi3芯片迭代，AI训练性能提升，国内数据中心开始适配。<br><br>国际白银价格走强，突破79美元/盎司，工业与避险需求共振。<br><br>|来源：https://github.com/johnsontiffany9016/rsgsae-jnwllh/commit/7f1fc716a058f78fc1f32ceb1b083da5f5a784b6?HTML=kS8
+
+ <br><br>|<br><br>纸浆价格走低，造纸行业盈利空间得到进一步扩大。<br><br>AI文案改写工具升级，快速优化各类文稿语句提升流畅度。<br><br>|来源：https://github.com/johnsontiffany9016/rsgsae-jnwllh/commit/b466780d80985c7bec6293be61e06b1c5c631cee?htm=xD7
+
+ <br><br>|<br><br>民宿行业入住率走高，短途周边游带动民宿行业盈利。<br><br>阿里云峰会5月20日杭州开幕，发布AI算力与企业服务新方案。<br><br>|来源：https://github.com/johnsontiffany9016/rsgsae-jnwllh/commit/96778a86b3286ba07c1fda1df30012615d0faed9?htm=eL6
+
+ <br><br>|<br><br>国产折叠平板正式面世，大屏便携兼顾，办公娱乐体验升级。<br><br>魅族22系列回归，AI大模型、Flyme系统优化，小众市场复苏。<br><br>|来源：https://github.com/johnsontiffany9016/rsgsae-azyxkb/commit/7f428d0f5d185dccf1e50923d1742e0b1dba4ce4?=rL6
+
+ <br><br>|<br><br>县域消费市场发力，家电下乡政策拉动下沉市场消费增长。<br><br>快手AI直播、短视频工具升级，降低创作门槛，用户活跃度提升。<br><br>|来源：https://github.com/johnsontiffany9016/rsgsae-azyxkb/commit/ff64af0e7f37ce21e69515c5438b6480922807a7?htm=tM9
+
+ <br><br>|<br><br>文旅部落实门票减免，推动文旅消费复苏，AI智慧景区建设。<br><br>长鑫科技更新科创板招股书，一季度净利增1688%，拟募资近300亿元。<br><br>|来源：https://github.com/leonardchristina6/rsgsae-yofrwk/commit/043956e0d6cad5bd015d20866fad72d11f6f15f2?HTML=lL7
+
+ <br><br>|<br><br>券商下调多家房企估值，行业出清加速，优质房企迎整合机遇。<br><br>新型电力系统建设提速，特高压、储能、虚拟电厂协同发展。<br><br>|来源：https://github.com/leonardchristina6/rsgsae-yofrwk/commit/e212272f300b2ca81808815a89a9132d28c5b522?HTML=lS6
+
+ <br><br>|<br><br>光纤宽带再度提速，千兆宽带逐步成为城乡家庭标配。<br><br>精品民宿连锁化布局提速，标准化运营提升行业整体收益。<br><br>|来源：https://github.com/leonardchristina6/rsgsae-loacpn/commit/2b385a45f6ab4f633a80c06c003032d001704792?HTML=wX5
+
+ <br><br>|<br><br>英伟达Orin-X芯片量产，高阶自动驾驶算力核心，头部车企标配。<br><br>龙芯3A6000处理器性能提升，国产CPU市占率提升，信创采购放量。<br><br>|来源：https://github.com/leonardchristina6/rsgsae-yofrwk/commit/df4ced5c65a080e16e3099138a57449651ef626f?HTML=pZ6
+
+ <br><br>|<br><br>券商研报AI生成普及，数据整合、观点提炼，发布效率提升。<br><br>5月20日现货黄金突破4490美元/盎司，日内小幅上行，避险需求持续升温。<br><br>|来源：https://github.com/leonardchristina6/rsgsae-loacpn/commit/3cbd9e1f22ba416cb0d43822dafdded31962dcfb?htm=iX2
+
+ <br><br>|<br><br>金融行业AI安全防护，对抗攻击、模型窃取、数据泄露，防御强化。<br><br>海外光伏需求高景气，欧洲、中东、拉美装机增长，出口拉动。<br><br>|来源：https://github.com/leonardchristina6/rsgsae-apvidk/commit/ef74201ccbbb8e11c386bd441727a069eb36badc?=dG8
+
+ <br><br>|<br><br>数据中心绿色化转型，液冷、光伏、储能配套，<br><br>*报告生成时间：2026年09月02日*<br>*数据来源：https://github.com/leonardchristina6/rsgsae-loacpn/commit/f646e11dcb1a699a202e38a87531bb27e10d5bfe?=xD0
+ 新浪财经、公开媒体报道*400 7787 313 （大15通配）
+
+2026年09月02日12时12分50秒(UTC+8)(UTC+8)
+fgsgsgsw
